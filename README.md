@@ -1,0 +1,2 @@
+# NEWBIE-
+tập làm gibhub 
